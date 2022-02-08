@@ -8,3 +8,6 @@
 
 #### 📝My Resume: https://utopian-marquess-fc2.notion.site/Resume-d518209891a64978b64aaadc41db5fd7
 
+Pretty Donuts NFT Market : 
+https://opensea.io/collection/prettydonuts
+
